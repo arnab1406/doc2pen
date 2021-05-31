@@ -6,7 +6,7 @@ Are you a student who is tired of having to write out assignments on paper, draw
 
 Does it seem too much of a hassle in this age of online education? 😫
 
-If your answer is yes, then you've come to the right place! 😃
+If your answer is yes, then you have come to the right place! 😃
 
 ### Doc2Pen is the 1 stop shop for getting all your "handmade" assignments ready for submission digitally. 🥳
 
